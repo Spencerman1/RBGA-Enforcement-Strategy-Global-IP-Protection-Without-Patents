@@ -1,2 +1,4 @@
-# RBGA-Enforcement-Strategy-Global-IP-Protection-Without-Patents
+By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
+RBGA-Enforcement-Strategy-Global-IP-Protection-Without-Patents
 Outlines how the Reflexive Behavioral Governance Authority™ (RBGA™) replaces traditional patent routes with a private-law enforcement wrapper using copyright, trade-secret, and contract law. Anchored for global authorship, licensing, and cross-border restitution.
